@@ -1,1 +1,0 @@
-# ruppy-logo
